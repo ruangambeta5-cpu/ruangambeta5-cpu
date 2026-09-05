@@ -10,8 +10,7 @@ Gosto de estar presente, fazer perguntas, descobrir como as coisas funcionam e t
 
 Assim como Tony Stark, acredito que tecnologia, criatividade e conhecimento podem transformar ideias em realidade. ⚡
 
-💎 As Joias do Infinito
-<p align="center"> <img src="https://i.imgur.com/8Qf4QZJ.png" width="600"> </p>
+
 🔵 Joia do Espaço
 
 Explorar novos lugares, ideias e possibilidades.
